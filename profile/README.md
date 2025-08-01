@@ -158,4 +158,5 @@ This is a standalone tool provided as-is with no affiliation to official sound p
 ## 🔍 Tags
 
 ```text
-noizio mac download, noizio for macbook, ambient sound app mac, sound mixer for macos, productivity soundscape mac, download noizio macos, noizio sleep noise generator, noizio focus tool mac, offline ambient sounds mac, noizio apple silicon support, noizio ventura compatible, relaxing background audio mac, noizio customizable presets mac, noizio minimal interface mac, noizio white noise player mac
+noizio for mac download full version, noizio macos ambient sound app, noizio productivity mixer for mac, noizio rain thunder presets mac, noizio sound presets download mac, download noizio for macbook pro, noizio app for sonoma ventura, noizio m1 m2 m3 apple silicon mac, noizio offline white noise macos, noizio sleep focus soundscapes mac, install noizio mac full package, noizio background noise utility mac, noizio customizable loops macbook, noizio native mac ambient player, noizio sound generator tool mac
+
